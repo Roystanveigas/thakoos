@@ -1,2 +1,1 @@
-# thakoos
-NA
+I AM ATOMIC..............
